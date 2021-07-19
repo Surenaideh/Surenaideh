@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Surenaideh
+- I’m interested in 3D softwares 
+- I’m currently learning VFX
+- I’m looking to collaborate on video games or movie production
+- 📫 How to reach me : mh.voronoy@outlook.fr
